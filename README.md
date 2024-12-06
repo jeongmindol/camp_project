@@ -1,0 +1,23 @@
+# 프로젝트 소개
+
+![7팀 최종발표](https://github.com/user-attachments/assets/f333e4f1-63f0-4460-9192-e5c0e0c32971)
+![7팀 최종발표 (1)](https://github.com/user-attachments/assets/477cf7f5-77ce-4722-88ce-e0d26f88cddc)
+![7팀 최종발표 (2)](https://github.com/user-attachments/assets/e4ee57ab-176a-41ed-899f-2ee806804ef7)
+![7팀 최종발표 (3)](https://github.com/user-attachments/assets/ea983eee-8d51-455a-b234-05af861a32cf)
+![7팀 최종발표 (4)](https://github.com/user-attachments/assets/bfe6fadf-5171-45d9-93c4-58c719b55dfd)
+![7팀 최종발표 (5)](https://github.com/user-attachments/assets/dfd861fb-b450-4c27-9efa-3e690768fe9f)
+![7팀 최종발표 (6)](https://github.com/user-attachments/assets/e6fef157-2d8a-41fe-b11c-c9a945e8b37f)
+![7팀 최종발표 (7)](https://github.com/user-attachments/assets/ef6ae836-e39d-498d-aa8b-10e2ce3607ff)
+![7팀 최종발표 (8)](https://github.com/user-attachments/assets/bf1a928e-cc02-4f41-a79d-4bb6a9fb0c5a)
+![7팀 최종발표 (9)](https://github.com/user-attachments/assets/6d3caa01-a035-4425-8ef4-d8b99957f753)
+![7팀 최종발표 (10)](https://github.com/user-attachments/assets/6be4eedb-5a59-4a0a-a06a-20f0a3f7c486)
+![7팀 최종발표 (11)](https://github.com/user-attachments/assets/b8116650-2339-4730-80f6-5b59a90d1307)
+![7팀 최종발표 (12)](https://github.com/user-attachments/assets/7404e727-072b-4406-9edc-021ff4564c4a)
+![7팀 최종발표 (13)](https://github.com/user-attachments/assets/4e3c36be-05a5-431a-b164-e318f2245131)
+![7팀 최종발표 (14)](https://github.com/user-attachments/assets/6d686be7-fe1b-4a8f-9d0e-0020ae449df0)
+![7팀 최종발표 (15)](https://github.com/user-attachments/assets/80d2e585-e8a9-4108-b28e-1710b0b28984)
+![7팀 최종발표 (16)](https://github.com/user-attachments/assets/49d70b0e-a1bd-49b3-9c26-3e0cbd9b2c92)
+![7팀 최종발표 (17)](https://github.com/user-attachments/assets/a272a730-e469-48a7-9dd1-423847b33f5d)
+![7팀 최종발표 (18)](https://github.com/user-attachments/assets/8b61ca48-9a52-4065-8de5-645a58aaf25e)
+![7팀 최종발표 (19)](https://github.com/user-attachments/assets/6ce656c9-dff8-455e-b398-25119f39e6d3)
+
